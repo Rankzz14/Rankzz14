@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rankzz14
+- 👋 Hi, I’m Orhan Emre BAGDU
 - 👀 
 - 🌱 
 - 💞️ 
