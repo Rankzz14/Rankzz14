@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Orhan Emre BAGDU
+- 👋 Hi, I’m Orhan Emre
 - 👀 
 - 🌱 
 - 💞️ 
